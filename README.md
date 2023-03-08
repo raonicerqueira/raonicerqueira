@@ -1,4 +1,4 @@
-## Olá! Eu sou o Raoni Cerqueira, desenvolvedor fullstack em constante aprendizado 🖥️🎮🚀  
+## Olá! Eu sou o Raoni Cerqueira, desenvolvedor fullstack em constante aprendizado 🖥️🚀  
 
 <br/> 
   
